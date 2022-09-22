@@ -1,1 +1,1 @@
-I want this to be something completely different. 
+Both those ideas were bad. 
